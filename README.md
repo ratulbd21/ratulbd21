@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @ratulbd21
-- 👀 I’m interested in ...fb hacking
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in  fb hacking
+- 🌱 I’m currently learning how to hack Facebook
+. create pissing link..
+- 💞️ I’m looking to collaborate on .
 - 📫 How to reach me ...
 http://Facebook.com/brokenheart420rh
 
